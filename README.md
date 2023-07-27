@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ram1041
+- 👀 I’m interested in Operations Management leadership role
+- 🌱 I’m currently learning project management professional (PMP) certification
+- 💞️ I’m looking for more creative challenges
+- 📫 You can reach me at "ramece1041@gmail.com"
